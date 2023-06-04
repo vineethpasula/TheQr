@@ -1,1 +1,1 @@
-# TheQr
+https://vineethpasula.github.io/TheQr/
